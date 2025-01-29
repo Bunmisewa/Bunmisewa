@@ -1,6 +1,6 @@
 ### My name is Adesewa Oluwabunmi
-- I am currently learning data analysis with the Incubator Hub
-- 💞️ I’m looking for Data Analytics and Entry roles (Internship, Freela\ncing, Remote and Permanent roles)
+- I am currently exploring data across different fields and making awesome discoveries and insights to help businesses, create awareness and make innovative and informed decisions.
+- 💞️ I’m looking for Data Analytics and Entry roles (Internship, Freelancing, Remote and Permanent roles)
 - Let's talk about data and tell a story together
 - 📫 How to reach me ...linkedin 
   
