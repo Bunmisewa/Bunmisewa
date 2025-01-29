@@ -2,7 +2,7 @@
 - I am currently exploring data across different fields and making awesome discoveries and insights to help businesses, create awareness and make innovative and informed decisions.
 - 💞️ I’m looking for Data Analytics and Entry roles (Internship, Freelancing, Remote and Permanent roles)
 - Let's talk about data and tell a story together
-- 📫 How to reach me ...linkedin 
+- 📫 How to reach me linkedin https://www.linkedin.com/in/adesewa-oluwabunmi-komolafe-5608b7232?trk=contact-info
   
 
 <!---
